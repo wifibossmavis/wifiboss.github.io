@@ -1,2 +1,2 @@
-# wifiboss.github.io
+# WifibossPH
 Registration Details
